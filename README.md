@@ -1,1 +1,1 @@
-# scs-c
+# shashivusion-cadet-school-and-college
